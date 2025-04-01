@@ -1,7 +1,7 @@
 ### Pirate 2D
 
-https://github.com/user-attachments/assets/d3a4a4fd-b486-4964-b885-ba02754b8968
 
+https://github.com/user-attachments/assets/aef220a1-1e4c-49cd-8f50-4ece22c5e711
 
 
 
